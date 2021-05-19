@@ -1,0 +1,1 @@
+# Potato Slippers wants to share her first digital paintings , which are rare and perhaps not the norm but evolution and education in this new world is very exciting and challenging. Enjoy Potato Slippers ' Original Digitals'.
